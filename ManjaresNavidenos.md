@@ -21,10 +21,10 @@ Licúa la Leche Condensada LA LECHERA® con la Leche Evaporada CARNATION® CLAVE
 Retira del fuego y refrigera por 2 horas o hasta que esté firme; desmolda y sirve.
 
 ### Consejos: 
-1.Consejo culinario
+1. Consejo culinario
 Para saber si el flan está cocido, introduce la punta de un cuchillo; si sale limpia el flan está listo.
 
-2.Consejo nutricional
+2. Consejo nutricional
 El café aporta antioxidantes.
 
 
