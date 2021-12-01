@@ -1,5 +1,5 @@
 # Manjares Navideños
-## Fland de cafe 
+## Flan de cafe 
 ### Ingredientes: 
 - 🧂 3/4 Taza de Azucar 
 -
