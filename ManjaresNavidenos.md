@@ -1,6 +1,14 @@
+<div align="center">
+
+<img src="https://imag.bonviveur.com/presentacion-principal-del-flan-de-cafe.jpg" width="520"  height="374" />
+  
 # Manjares Navideños
 ## Flan de cafe 
+
+</div>
+
 ### Ingredientes: 
+
 - ***3/4*** Taza de Azucar 
 
 - 🥛 1 Lata de Leche Condensada 
@@ -27,6 +35,8 @@ Para saber si el flan está cocido, introduce la punta de un cuchillo; si sale l
 2. Consejo nutricional
 El café aporta antioxidantes.
 
+### Video de la receta: 
+- https://www.youtube.com/watch?v=xDJGSEMSbiM
 
 ### Referencias 
-https://www.recetasnestle.com.mx/recetas/postres-flan-de-cafe
+- https://www.recetasnestle.com.mx/recetas/postres-flan-de-cafe
