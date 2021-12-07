@@ -1,11 +1,11 @@
 # Manjares Navideños
 ## Flan de cafe 
 ### Ingredientes: 
-- 🧂 3/4 Taza de Azucar 
+- 3/4 Taza de Azucar 
 -
 - 🥛 1 Lata de Leche Condensada 
 -
-- 🥤 1 Lata de Leche Evaporada 
+- 1 Lata de Leche Evaporada 
 -
 - 🥚 6 Huevos
 -
